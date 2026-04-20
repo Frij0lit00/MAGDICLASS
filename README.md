@@ -1,0 +1,2 @@
+# MAGDICLASS
+WORK
